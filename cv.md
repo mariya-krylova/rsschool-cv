@@ -32,7 +32,7 @@ I like learning something new and I will do my best to pass this course!
     + Advertising and Public Relations in the Public Sphere, Master
 * **Yudaev School**
     + UX/UI designer
-
-  ### **Languages**:
+   
+### **Languages**:
   * Russian - native speaker
   * English - C1
