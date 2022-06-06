@@ -3,7 +3,9 @@
 ### **Contacts**: 
 
 Email: mariia.krylova.1997@mail.ru
+
 Phone: +7 (985) 645-87-26
+
 Telegram: @dancing_goddess
 
 ### **About Me**: 
